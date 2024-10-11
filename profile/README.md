@@ -27,7 +27,7 @@ Admins reserve the right to remove inappropriate content or members who repeated
 [WhatsApp Group](https://chat.whatsapp.com/L7aES0X1K3tCdgjWHXfqM3)
 
 ---
-
+Regards
 **Rutuja Gunjal**  
 Microsoft Learn Student Ambassador,  
 [MLSC KBTCOE](https://linktr.ee/mlsc_kbtcoe)
